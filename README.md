@@ -10,4 +10,8 @@ Proje, temel e-ticaret işlevselliği ve kullanıcı deneyimini sağlamak için 
 
 
 
+https://github.com/user-attachments/assets/e0266e19-27b1-4910-ac4b-b084dc1c948f
+
+
+
 
