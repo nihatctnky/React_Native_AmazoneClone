@@ -10,6 +10,7 @@ Proje, temel e-ticaret işlevselliği ve kullanıcı deneyimini sağlamak için 
 
 
 
+![EkranKayd2025-02-2423 31 53221111-ezgif com-optimize](https://github.com/user-attachments/assets/f5e71263-a7b0-4dc9-8338-552c9a2329b4)
 
 
 
